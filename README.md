@@ -1,0 +1,2 @@
+# FlagFrenzy
+Privacy Policy
